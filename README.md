@@ -1,0 +1,2 @@
+# nlp_seminar2024_linguistics_20241102
+nlp_seminar2024_linguistics_20241102 at konan university in Tokyo.
